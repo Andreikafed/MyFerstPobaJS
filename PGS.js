@@ -1,0 +1,1 @@
+https://disk.yandex.ru/i/7NzYH8Ndatm2BQ.FrontAnimIdle.png
